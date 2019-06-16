@@ -35,9 +35,20 @@ Sit and wait for an answer. One will come.
 Do that. To find out what happens is an adventure.
 Do what my conscience tells me to do, in all things.
 
+## What is unique to my way of thinking here, and what is it boiled out?
 
+Humans see the world through their values, which have the structure of a story.
+This story is a form of attention, it is (a) vision that creates the world we see from an extremely narrow abstraction of reality, with the dual outputs of imagining what we desire and physical embodied action.
+Feeling hollow or worthwhile is the most accurate indicator that you are on the correct path.
+The best way to find the path is to ask your conscience, wait for an answer, then do that.
+Encourage those your love as it gives them the courage to move forward.
 
-
+Each human can create the world through conversation, so has divine worth, so each of us has a responsibility to strive to love each other.
+Values are paramount, they create the shared world that we live in.
+Humans are mostly blind, out of necessity since we need to act, but confusing the world you see with reality can be dangerous.
+Avoid what makes you feel hollow, and ask you conscience what to do to know where is worthwhile.
+Encourage those you love to give them the courage to move forward.
+ 
 
 
 
