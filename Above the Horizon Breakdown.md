@@ -10,7 +10,30 @@
 
 
 
+
 # Above the Horizon Breakdown
+
+**Marie **
+Medium competence, high likability, high proactive
+Female hero's journey, clam diver for food + pearls, she did not call for help when her sister was attacked
+Main character is female
+She will marry her opposite, integrating it
+She will marry the tyrant, bringing it back to balance
+
+*Joey*
+High competence, low likability, medium proactive
+Antagonist, assassin for hire, actually a marshmallow
+Trained assassin while human, saddled by beaucratic paperwork
+Main antagonist is an AI robot race, humans who have uploaded themselves to robots
+The robots cannot speak as they have forgotten how to. Communicate in left brained way.
+Female main character gives them a voice, ‘saves them’.
+They are ruling class of Earth, enslave the human population
+Have difficulty updating their ‘maps’ of the world, that is their weakness
+Main antagonist
+
+Sidekick, 
+
+---- 
 
 **World building** - Set in the future. Genetic engineering has resulted in speciation of humans, with the massively wealthy modifing their childrens’ genetics to have all desirable traits. The results in a caste of super-humans who are highly intelligent, good looking, and healthy. It does not mean they are necessairly of high moral fiber. Exceptional individuals can manifest semi-divine powers seen in historical religions, such as seeing the future, telekinesis water, transmuting elements, and communicating to others through their dreams. 
 Nobles live in space, and have created laws only allowing those of high genetic stock to be allowed to live in space. Hero figures out she is half noble, so can infiltrate noble society.

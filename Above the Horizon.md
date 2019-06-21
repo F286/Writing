@@ -1,5 +1,21 @@
 # Above the Horizon - Execute
 
+What you see is not real.
+
+Marie stared into the mist, almost seeing a form, the feeling of almost remembering a word on the tip of her tongue. The control room spread around her, sleek white walls with padded cushions at regular intervals. She felt something in her hand and looked down, it was a remote with a single large button. She turned it over and saw symbols, she was afraid for an instant but as she looked at them she understood. Pressing this button would release what was contained in the mist. This terrified her. But she also knew that this is what she must do. She drew her thumb closer to the button, eyes wide staring into the curling and transforming mist. Almost.. then two eyes opened in the mist, staring back.
+
+Marie woke with a start, covered in sweat. She pushed her long dark hair off of her face, ungluing her eyelids with her fingers. Had she been.. crying? She cradled her head in her hands as she sat up, discarded pizza boxes and stim needles strewn across the floor. Marie opened her journal and tried to remember, she wrote, “Day 73. White room with mist. Saw eyes this time, they stared back.” This sent a shiver up her spine. 
+
+She snapped the journal shut then stood up, groaning. She pushed aside the pizza cartons on the floor, careful to avoid jabbing her foot on needles, and cleared a space. She carefully unfurled a beautiful ornate rug, not taller than herself, and gently placed it on the floor. She wiped her face, hands and feet with alcohol wipes, then knelt on the rug in silence.
+
+“Allfather, let us remember thy path, lend us thy sight to see it, and give us thy courage to walk it,” Marie whispered.
+She knelt down and touched her forehead to the ground.
+
+
+
+
+
+
 Eva reverently chewed the last piece of bread she had taken from her coat pocket. The shouts of food stall vendors in the street below mixed with the mechanical hum of a police aircar, it’s search light sweeping over her and the surrounding buildings. 
 Her stomach rumbled as she climbed her thin arms up the black metal escape ladder of the building, it’s steps slick with the near constant rain of New Paradise. Eva wiped the rain from her face, shivering from the cold. She peered over the short brick wall of the roof, the bright lights of the vendor contrasted with the darkness of the night sky. A roundish man with red cheeks stuck his fingers into the machine he stood beside, pulling out an apple and handed it to a woman waiting in line. Eva’s felt a deep pang in her stomach. 
 Eva gingerly grabbed onto a rusty drain pipe going down the side of the building. She looked down briefly and felt a momentary rush of vertigo. She carefully lowered herself down using slippery footholds until she got to the ground. Tent pegs were hammered directly into the muck the ground had become, tanks of petrol were stacked behind the small tent.

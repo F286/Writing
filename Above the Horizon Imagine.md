@@ -49,29 +49,49 @@ Humans are mostly blind, out of necessity since we need to act, but confusing th
 Avoid what makes you feel hollow, and ask you conscience what to do to know where is worthwhile.
 Encourage those you love to give them the courage to move forward.
  
+The fact that what we see is not reality, that is what i need to transmit in this story. (We see reality filtered through our values, but not reality directly. This is ‘innoculation’ against ideologies)
 
+We must also tell the truth, to be honest with each other.
 
+Maybe this is Plato’s cave analogy. 
 
+**Built in must be the implication for action (embodied)**
 
+Walk towards your fear, you will succeed.
+Be willing to die, live.
+Speech creates the world.
+Tell the truth, create a good world.
 
+## Values for story
 
+Each person creates the world through speech
+Cannot see reality directly, but instead only through values
+Confusion of the perceived world and reality leads to disaster
+“Pride comes before a fall”
 
+Each person’s values have value
+By integrating perspectives, we can see infer a more complete view of reality
+Marriage instead of conflict, this is how you can save those you love most
 
+*Character sliding scales*
+Comptence
+Likability
+Proactive
 
+*Brainstorm for character*
+Archetype
+Unusual profession
+Deep dark secret
 
-
-
-
-
-
-
-
-
-
-
-
-
-
+Walking through snowy streets in Japan, a lot of snow!
+Wow it’s nice here
+Get text to go back
+Look up train
+2.5 hours for destination, have to change trains
+Looks complicated
+..All you need is faith 
+Wake up
+realize i am back home, didn't need to do all that walking or spend time to get back.
 
 
 
